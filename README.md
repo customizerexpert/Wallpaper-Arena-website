@@ -1,2 +1,2 @@
 # Wallpaper-Arena-website
-website
+© 2023 Cyber Grotesk
